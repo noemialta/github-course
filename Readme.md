@@ -7,3 +7,5 @@ Saiba mais no link [jndofadjf]
 Noemi é muito legal, até parece que é gente de verdade!
 
 Sério
+
+Oi, tudo bom?
